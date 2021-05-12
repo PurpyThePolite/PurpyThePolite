@@ -1,7 +1,9 @@
 haver of meow meows 
 
 add me on discord striderade#6666
-no idea how to use github
+
+also no idea how to use github
+
 member of KUCC 
 
 <!---
