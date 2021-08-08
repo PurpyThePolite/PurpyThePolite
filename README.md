@@ -1,4 +1,5 @@
-haver of meow meows 
+I have no idea how to use github. 
+nate natty nathan#6666 on discord 
 
 <!---
 PurpyThePolite/PurpyThePolite is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
